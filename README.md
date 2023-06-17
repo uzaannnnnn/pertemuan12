@@ -1,0 +1,2 @@
+# pertemuan12
+ MUHAMAD FAUZAN 22110485
